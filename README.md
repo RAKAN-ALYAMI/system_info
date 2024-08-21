@@ -79,6 +79,6 @@ For any inquiries or support, please contact:
 
 لأي استفسارات أو دعم، يرجى التواصل:
 
-   Author | المؤلف: Rakan Alyami
-    Email | البريد الإلكتروني: rakan7777@gmail.com
-    Telegram: https://t.me/r7000r
+Author | المؤلف: Rakan Alyami
+Email | البريد الإلكتروني: rakan7777@gmail.com
+Telegram: https://t.me/r7000r
